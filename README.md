@@ -12,3 +12,4 @@
 ────────────────────────────────────
 ↓↓↓ I LOVE LC/LOR/LCB OK??? using for PT or whatever
 <img width="736" height="414" alt="c11ada5170138632cee2d6e3a7df1d99" src="https://github.com/user-attachments/assets/1783493c-2403-4641-b0cd-b0feb0b29570" />
+CASUALLY OFTB OR SAFK WHISP TO INT AND PLEASE C+H OK??
