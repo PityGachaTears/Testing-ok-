@@ -1,6 +1,6 @@
 >                      💤 - ⭐
 >                 welcome to my GH!
->                she  // they(any..)
+>                 she // they(any..)
 >                  multifndm ok!
 >               (PMJ,WTDSIK,n others.)
 >           multishipper. (just a lil ok?)
