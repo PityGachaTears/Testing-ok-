@@ -22,6 +22,7 @@ C+H freely! (like I said up there ↑↑↑)
  pss pass cn:a fans pls int 👀
 
  - FANDOMS ↓↓↓
+and other of my fandoms extra: wtdsik,pjsk,an, and idk I forgot the others
 
 <img width="100" height="99" alt="27ee8572-d0f1-4089-93ae-fac3bb50e9f5" src="https://github.com/user-attachments/assets/d6597dad-7839-4ca8-b707-553c04c7b9f6" /> <img width="100" height="99" alt="don quixote" src="https://github.com/user-attachments/assets/d0315d99-aa9c-4474-8d40-498f057b0252" /> <img width="100" height="99" alt="eda36326-2f85-4fe8-94c6-008a9f5d2be5" src="https://github.com/user-attachments/assets/52b4b49b-f1cf-47e2-b34d-3acd65dc7478" /> <img width="100" height="99" alt="3dacc8f0-9062-4239-a06e-aa33be90cf8d" src="https://github.com/user-attachments/assets/5d4eeee1-783a-4155-8b84-4d7943c7cb6e" /> <img width="100" height="99" alt="369a879f-251d-4280-8e9b-a01c5e46d988" src="https://github.com/user-attachments/assets/b95e80bd-9d66-4937-a838-454c6e4489ad" /> <img width="100" height="99" alt="74895664-740d-4894-8f3e-7422a7638fd8" src="https://github.com/user-attachments/assets/0b73f456-6a2f-4022-b015-f38b2968a73e" />
  
