@@ -4,7 +4,8 @@
 -this gh (GitHub) will only be for pt! (pony town)
 Encourage if we oomfs ok
 - c+h is always - welcome,you do not need to ask!
-- chat is always off but u can whisp me freely.hide freelyy + mute / whisp to int,am always afk or oftb if you     want to int just whisp and be     -      patient     for me to answer!just a basic pt info or idk? am to lazy!
+- chat is always off but u can whisp me freely.hide freelyy + mute / whisp to int,am always afk or oftb if you     want to int just whisp and be     -
+-   patient     for me to answer!just a basic pt info or idk? am to lazy!
 # WE LOVE HONG LU
  <img width="500" height="200" alt="ೀ hong lu plushie 𓂂" src="https://github.com/user-attachments/assets/c5874bb6-7bc5-443a-9011-3e17a8cf00f9" />  
 -where??: (casually at pm area or at the bakery, library, or in a different server (Russian safe server am always there or not)
