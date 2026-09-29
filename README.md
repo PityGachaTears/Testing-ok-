@@ -8,7 +8,9 @@ Encourage if we oomfs ok
 # WE LOVE HONG LU
  <img width="500" height="200" alt="ೀ hong lu plushie 𓂂" src="https://github.com/user-attachments/assets/c5874bb6-7bc5-443a-9011-3e17a8cf00f9" />  
 -where??: (casually at pm area or at the bakery, library, or in a different server (Russian safe server am always there or not)
- (lone sometimes, or with friends)
+
+- (lone sometimes, or with friends)
+
 
 
 - just sit next to me and it's all good.
