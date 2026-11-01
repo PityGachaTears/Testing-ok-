@@ -2,7 +2,9 @@
    _Hi, refer me as Yui or xio_ <3
 
 -this gh (GitHub) will only be for pt! (pony town)
-Encourage if we oomfs ok
+Encourage if we oomfs ok <img width="20" height="20" alt="100px-Hint_Ally_3" src="https://github.com/user-attachments/assets/7ffbadd3-7179-4222-a24c-52d5ad379750" />
+
+
 - c+h is always - welcome,you do not need to ask!
 - chat is always off but u can whisp me freely.hide freelyy + mute / whisp to int,am always afk or oftb if you     want to int just whisp and be     -
 -   patient     for me to answer!just a basic pt info or idk? am to lazy!
@@ -18,7 +20,8 @@ Encourage if we oomfs ok
 C+H freely! (like I said up there ↑↑↑)
 
  
- ## Hai CN:A FANS PLS INT! ^_^
+ ## Hai CN:A FANS PLS INT! ^_^ <img width="30" height="30" alt="100px-Hint_Ally_3" src="https://github.com/user-attachments/assets/7ffbadd3-7179-4222-a24c-52d5ad379750" />
+
  pss pass cn:a fans pls int 👀
 
  - FANDOMS ↓↓↓
