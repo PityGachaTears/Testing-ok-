@@ -1,7 +1,7 @@
-# Greetings. Welcome to my GitHub.
-- edited by chel-z
+## A warm welcome to my dear visitors 
+- edited/ic.by chel'xz ♥♥♥
 
-  _hello, refer me as Rayui or whatever._
+  _Greetings, refer me as Rayui or Yuka._
 
 - well this GitHub will only be for PT or other of my websites.
 Encourage if we oomfs (or moot me instead) (Iam lone always or not.) <img width="20" height="20" alt="100px-Hint_Ally_3" src="https://github.com/user-attachments/assets/7ffbadd3-7179-4222-a24c-52d5ad379750" />
