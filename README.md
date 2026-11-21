@@ -11,17 +11,11 @@ w2i| if you want to talk whisp me bc Im always oftb/afk, if I don't answer ur wh
 c+h freely| it's ok to sit next to me anytime, there's no need to ask.
 
 btw.. I really like watching anime (I don't really watch that much.) and playing games 
+
+Fandoms I'm in- WTDSIK,MiA,PM (LC,LOR,LCB),HSR,R1999 I can't brainstorm it all.
 <details>
 <summary>click me!</summary>
- - Pat the Hong lu Plushie 
+    Pat the Hong lu Plushie for 1 dolla each pat or hit the Hong lu Plushie to have 100 dolla each hit😔
 <img width="500" height="200" alt="ೀ hong lu plushie 𓂂" src="https://github.com/user-attachments/assets/c5874bb6-7bc5-443a-9011-3e17a8cf00f9" />  
-</details>
-
- Blank --->
- 
- <details>
-<summary>FANDOMS <3</summary>
-WTDSIK,MiA,PM (LC,LOR,LCB)
-  uhh I can't brainstorm in all.
 </details>
 
